@@ -1,2 +1,9 @@
-Creating a new branch is quick.
-Creating a new branch is quick and simple.
+不知道写的可不可以保存下来
+这里好像可以是一个博客
+一直想好好写程序，看了各种书，现在还是什么也不会
+自己没有一技之长
+学了这么久也觉得自己什么用也没有
+要每天做一件事情
+坚持下来
+希望自己可以好好的学习一门手艺-
+自己加油吧
