@@ -15,3 +15,12 @@ As a noob, i want find a easy way to learn it.  Python is easier to learn, and i
 Git is a friendly platform for us to see how big the world is, how much big asses here.  
 
 <font size = 3 >**Yes today i wanna a contribution.**</font>
+
+
+## 2020-06-12
+VB is also dificult for me.    
+I still didnot code much.    
+I hardly concertrate on doing sth.   
+It's terrible.
+But i want to be a coder.     
+I need something o someone ispire me.
